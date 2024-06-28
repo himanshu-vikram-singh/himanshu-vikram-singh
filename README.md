@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @himanshu-vikram-singh
 - 👀 I’m interested in web development
-- 🌱 I’m currently bachelor computer applicationbig ..
+- 🌱 I’m currently doing my graduation bachelor of computer application.
 - 💞️ I’m looking to collaborate on project based on my skills ...
 - 📫 there are many resourses to reach me :
 -  My linkdin id -himanshu-linkdin.com...
